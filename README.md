@@ -1,1 +1,1 @@
-# sudipta_AI.github.io
+# sudipta_ai.github.io
